@@ -1,13 +1,13 @@
 
 // ⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈⧈
 //▮Dark NERO MD 2022 ®️ALL RIGHTS RESERVED
-//▮ 
+//▮ owner 917059102517
 
 //▮
 //╰▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀▀
 //
 //┏━━━━━━━━━━━━━━━━━━━━━━━━━
-//┃THIS SOFTWARE INCLUDES 
+//┃THIS SOFTWARE  INCLUDES 
 //┃SOME ENCRYPTED FILES
 //┃
 //┃THANKS FOR CHOOSING DarkNero
